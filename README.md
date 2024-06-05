@@ -1,1 +1,1 @@
-# My Discord Server: https://discord.gg/C8YjpmQPJp
+# My Discord Server: discord.gg/C8YjpmQPJp
